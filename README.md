@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Megamasman
-- 👀 I’m interested in ... Things
-- 🌱 I’m currently learning ... Python and stuff
+- 👀 I’m interested in ... Langz
+- 🌱 I’m currently learning ... Python, Javascript, and Languages.. like.. alot of them
 - 💞️ I’m looking to collaborate on ... Things
 - 📫 How to reach me ... Megamasman42@gmail.com, Discord: Megamasman#7809
 
